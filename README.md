@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vexlia-Artemiss
 - 👀 I’m interested in modding
 - 🌱 I’m currently learning rules.cvs
-- 📫 How to reach me on my Bluesky: @vexlia-artist.bsky.social
+- 📫 How to reach me: my Bluesky: @vexlia-artist.bsky.social
 - 😄 Pronouns: Not sure, I/me/myself.
 - ⚡ Fun fact: I'm left handed.
 
