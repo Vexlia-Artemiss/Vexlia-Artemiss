@@ -2,8 +2,9 @@
 - I’m interested in modding
 - I’m currently learning how weird Starsector coding is.
 - How to reach me:
-Ny Bluesky: @vexlia-artist.bsky.social
-I also sit in Unofficial Starsector Chat on Discord
+- 
+- My Bluesky: @vexlia-artist.bsky.social
+- I also sit in Unofficial Starsector Chat on Discord
 
 - Pronouns: Whatever, I not too picky.
 - Fun fact: I'm left handed.
